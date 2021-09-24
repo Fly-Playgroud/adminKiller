@@ -1,0 +1,2 @@
+# adminKiller
+fuck admin
